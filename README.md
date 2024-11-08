@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **dhruvibarot201@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/b/s!ApuU-GuHWqfigVB2wMVJxXheCDMH?e=vsFWGV](https://1drv.ms/b/s!ApuU-GuHWqfigVB2wMVJxXheCDMH?e=vsFWGV)
+
 
 - ⚡ Fun fact **I am Funny😊**
 
