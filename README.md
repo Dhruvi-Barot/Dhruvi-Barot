@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **Data Science**
 
-- This is my Resume https://drive.google.com/file/d/1vtCwCDLiY4tHQLyKywDVw8BdhaN0ApKN/view?usp=drive_link
+- This is my Resume https://drive.google.com/file/d/1OHyZqEEiJbT-0n-y5ewZBsKgN7fpR1VD/view?usp=drive_link
 
 
 - 👨‍💻 All of my projects are available at [https://www.linkedin.com/in/dhruvi-barot-a28a93270](https://www.linkedin.com/in/dhruvi-barot-a28a93270)
